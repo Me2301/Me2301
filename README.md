@@ -1,0 +1,3 @@
+- 👋 Oi, eu sou @Me2301
+- 👀 Tenho interesse em cursar Analista em RH
+- 🌱 Estou aprendendo a trabalhar no RH
